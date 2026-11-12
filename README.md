@@ -1,1 +1,0 @@
-# Natural_Functional_Substances_Laboratory
